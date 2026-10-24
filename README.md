@@ -7,6 +7,6 @@
            <p align="center"> 
       <p align="center"> Welcome to Siann's alt account
     <p align="center"> Yes, it is Shadow Milk themed, one of my names isn't Shami for no reason!
-        <p align="center"> Rentry is the same but it's blue instead wow. No Atabooks though
+        <p align="center"> Rentry is the same but it's blue instead wow. No Atabooks though.. Yet!
 <p align="center"> ✧༺ <a href="https://rentry.co/shamimilk"> Rentry <a> ༻✧
 
